@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Diaz-20
+- 👋 Hi, I’m K.PRIYANGA SRI
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning Bachelor of engineering in Computer Science
 - 💞️ I’m looking to collaborate on company which will develop my skills
